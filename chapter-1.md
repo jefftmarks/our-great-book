@@ -2,4 +2,4 @@
 
 ## Chapter One
 
-Life is great.
+Life is great. Believe me.
